@@ -1,2 +1,0 @@
-# Staline
-Cazptaine staline discord
